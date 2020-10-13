@@ -5,6 +5,13 @@ lang: fi
 title: Suomen Gurdjieff -yhdistys SGS ry
 navi: Koti
 ---
+HUOM! Tulossa keskiviikkona 21.10.2020: 
+      MITÄ SISÄISESTÄ ELÄMÄSTÄNI PUUTTUU? - keskustelutilaisuus Zoomissa
+      - Mikäli olet kiinnostunut, lähetä sähköpostia osoitteeseeen 
+        gurdjieffsocietyfinland@gmail.com ja saat osallistumiseen
+        tarvittavat tiedot muutamaa päivää ennen tilaisuutta.
+        
+---
 
 G.I. Gurdjieffin menetelmää on sovellettu käytäntöön Helsingissä ja muissa 
 kaupungeissa vuodesta 2001. Ryhmiä on perustettu Helsinkiin, Turkuun, 
