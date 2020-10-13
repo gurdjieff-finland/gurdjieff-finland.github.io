@@ -5,10 +5,10 @@ layout: default
 title: Gurdjieff Society of Finland SGS ry
 navi: Home
 ---
-UPCOMING on Wednesday 21 October 2020: WHAT IS MISSING IN MY INNER LIFE? 
+- UPCOMING on Wednesday 21 October 2020: WHAT IS MISSING IN MY INNER LIFE? 
 -open discussion in Zoom (see more info at the page "Public meetings").
 
-If you are interested, please send email to gurdjieffsocietyfinland@gmail.com 
+-- If you are interested, please send email to gurdjieffsocietyfinland@gmail.com 
 and you will receive the information needed for participation few days before the event.
 
 ---
