@@ -5,11 +5,12 @@ lang: fi
 title: Suomen Gurdjieff -yhdistys SGS ry
 navi: Koti
 ---
-HUOM! Tulossa keskiviikkona 21.10.2020: 
-      MITÄ SISÄISESTÄ ELÄMÄSTÄNI PUUTTUU? - keskustelutilaisuus Zoomissa
-      - Mikäli olet kiinnostunut, lähetä sähköpostia osoitteeseeen 
-        gurdjieffsocietyfinland@gmail.com ja saat osallistumiseen
-        tarvittavat tiedot muutamaa päivää ennen tilaisuutta.
+HUOM! Tulossa keskiviikkona 21.10.2020: MITÄ SISÄISESTÄ ELÄMÄSTÄNI PUUTTUU? 
+-keskustelutilaisuus Zoomissa (ks. lisätietoja Tilaisuudet-sivulta).
+
+Mikäli olet tapahtumasta kiinnostunut, lähetä sähköpostia osoitteeseeen 
+gurdjieffsocietyfinland@gmail.com ja saat osallistumiseen tarvittavat tiedot 
+muutamaa päivää ennen tilaisuutta.
         
 ---
 
