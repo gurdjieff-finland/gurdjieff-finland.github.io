@@ -7,8 +7,7 @@ title: Tilaisuudet
 
 ## Tulevat tilaisuudet 2020
 
-* koko Suomi (Zoom-sovellus): 21.10.2020, MITÄ SISÄISESTÄ ELÄMÄSTÄNI PUUTTUU?
-- avoin keskustelutilaisuus
+* koko Suomi (Zoom-sovellus): 21.10.2020, MITÄ SISÄISESTÄ ELÄMÄSTÄNI PUUTTUU? -avoin keskustelutilaisuus
 
 Koronavirus rajoittaa parhaillaan ulkoista elämäämme. Toisaalta viime vuosina elämä on 
 tarjonnut meille loputtomasti mahdollisuuksia erilaisiin ulkoisiin aktiviteetteihin sekä 
@@ -33,6 +32,7 @@ ennen tilaisuutta niille, jotka ovat lähettäneet sähköpostia osoitteeseen gu
 
 Aktiivisia ryhmiä on tällä hetkellä Helsingissä, Turussa, Tampereella ja Jyväskylässä, ja jäseniä meillä 
 on myös muualla Etelä- ja Keski-Suomessa.
+
 
 
 ## Aiemmat tilaisuudet
