@@ -5,6 +5,13 @@ layout: default
 title: Gurdjieff Society of Finland SGS ry
 navi: Home
 ---
+ATTENTION! Upcoming on Wednesday 21 October: WHAT IS MISSING IN MY INNER LIFE? 
+- virtual public meeting in Zoom (see more info at the page "Public meetings").
+
+If you are interested, please send email to gurdjieffsocietyfinland@gmail.com 
+and you will receive the information needed for participation few days before the event.
+
+---
 
 Since 2001, groups in Helsinki and other cities in Finland have been trying to
 put the approach of G. I. Gurdjieff into practice. Groups have been established
