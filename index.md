@@ -5,7 +5,7 @@ lang: fi
 title: Suomen Gurdjieff -yhdistys SGS ry
 navi: Koti
 ---
-- HUOM! Tulossa keskiviikkona 21.10.2020: MITÄ SISÄISESTÄ ELÄMÄSTÄNI PUUTTUU? 
+- HUOM! Tulossa keskiviikkona 21.10.2020 klo 18-19: MITÄ SISÄISESTÄ ELÄMÄSTÄNI PUUTTUU? 
 -avoin keskustelutilaisuus Zoomissa (ks. lisätietoja Tilaisuudet-sivulta).
 
 - Mikäli olet tapahtumasta kiinnostunut, lähetä sähköpostia osoitteeseeen 
