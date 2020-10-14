@@ -7,7 +7,7 @@ title: Public Meetings
 
 ## Future Meetings 2020: 
 
-* October 21, 2020: WHAT’S MISSING? -open discussion in Zoom for all of Finland"
+* Wednesday 21.10.2020 at 18:00-19:00: WHAT’S MISSING? -open discussion in Zoom for all of Finland"
 
 Today we are rather restricted in our outer lives because of the dangers of the Corona Virus. 
 But in recent times we have had endless opportunities for outer activities and endless new technologies 
