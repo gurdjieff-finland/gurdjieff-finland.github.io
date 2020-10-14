@@ -7,7 +7,7 @@ title: Tilaisuudet
 
 ## Tulevat tilaisuudet 2020
 
-* koko Suomi (Zoom-sovellus): 21.10.2020, MITÄ SISÄISESTÄ ELÄMÄSTÄNI PUUTTUU? -avoin keskustelutilaisuus
+* ke 21.10.2020 klo 18-19, MITÄ SISÄISESTÄ ELÄMÄSTÄNI PUUTTUU? -avoin keskustelutilaisuus Zoom-sovelluksessa
 
 Koronavirus rajoittaa parhaillaan ulkoista elämäämme. Toisaalta viime vuosina elämä on 
 tarjonnut meille loputtomasti mahdollisuuksia erilaisiin ulkoisiin aktiviteetteihin sekä 
