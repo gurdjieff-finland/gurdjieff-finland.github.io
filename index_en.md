@@ -5,21 +5,27 @@ layout: default
 title: Gurdjieff Society of Finland SGS ry
 navi: Home
 ---
-- UPCOMING on Wednesday 21 October 2020 18:00-19:00: WHAT IS MISSING IN MY INNER LIFE? 
--open discussion in Zoom (see more info at the page "Public meetings").
 
-- If you are interested, please send email to gurdjieffsocietyfinland@gmail.com 
-and you will receive the information needed for participation few days before the event.
+Today we are rather restricted in our outer lives because of the dangers of the 
+Corona Virus. But in recent times we have had endless opportunities for outer 
+activities and endless new technologies for finding and sharing information.
 
----
+**But sometimes there has been a feeling that something is missing**, and it is 
+not necessarily more of the same kind of things but rather something in the inner 
+life. Are there possibilities for a deeper inner life that is on a different level 
+from most of modern life, **a search for real self and the meaning of our life 
+here on the earth?** These and other related questions may be explored in an 
+exchange where people can share their questions with each other.
 
-Since 2001, groups in Helsinki and other cities in Finland have been trying to
-put the approach of G. I. Gurdjieff into practice. Groups have been established
-at times in Helsinki, Turku, Jyväskylä, Tampere, Joensuu and Kouvola, and most
-are still active. Other cities are also being considered for new groups.
 
-Our groups are the only groups in Finland that are recognized as part of the
-main lineage from Gurdjieff, with links to the key groups in Europe (London and
+
+Since 2001, groups in Helsinki and other cities in Finland have put the approach 
+of G. I. Gurdjieff into practice. Groups have been established at times in Helsinki, 
+Turku, Jyväskylä, Tampere, Joensuu and Kouvola, and most are still active. 
+Other cities are also being considered for new groups.
+
+**Our groups are the only groups in Finland that are recognized as part of the
+main lineage from Gurdjieff**, with links to the key groups in Europe (London and
 Paris), North America (New York, San Francisco and Washington) and Latin
 America.  The groups in Finland were established by an American whose teacher
 was sent by Gurdjieff to form the Washington  group.
@@ -32,4 +38,4 @@ do not already have one.
 
 ---
 
-please contact:  gurdjieffsocietyfinland@gmail.com
+please contact:  gurdjieffsociety.fi@gmail.com
