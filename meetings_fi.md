@@ -11,6 +11,11 @@ jotakin puuttuu sisäisestä elämästämme. Onko sisäistä elämää mahdollis
 tason, jolle suurin osa nykyelämästä jää - ja etsiä todellista itseä ja elämämme merkitystä maapallolla? 
 **Gurdjieff-seura tarjoaa mahdollisuuksia jakaa tällaisia syvempiä kysymyksiä ja keskustella niistä yhdessä.** 
 
+## Tulossa
+
+* Julkinen keskustelutilaisuus 2023, kesäkuu: *verkkotapaaminen*
+* Julkinen keskustelutilaisuus 2023, syyskuu: Avoin yleisötilaisuus (Helsinki)
+
 ## Menneet tilaisuudet
 
 * Julkinen keskustelutilaisuus 2019: Avoin yleisötilaisuus (Tampere, Turku, Helsinki)
