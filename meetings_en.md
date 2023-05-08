@@ -11,6 +11,11 @@ life that is on a different level from most of modern life, a search for real se
 life here on the earth? These and other related questions may be explored in an open exchange where people 
 can share their questions with each other.
 
+## Upcoming Meetings
+
+* Public exchange 2023, June: *online*
+* Public exchange 2023, September: Open inquiry (Helsinki)
+
 ## Recent Meetings
 
 * Public exchange 2019: Open inquiry (Tampere, Helsinki, Turku)
