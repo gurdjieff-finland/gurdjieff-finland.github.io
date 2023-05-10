@@ -17,22 +17,21 @@ tason, jolle suurin osa nykyelämästä jää - ja etsiä **todellista itseä ja
 merkitystä maapallolla?** Gurdjieff-seura tarjoaa mahdollisuuden jakaa tällaisia syvempiä 
 kysymyksiä ja keskustella niistä yhdessä. 
 
-
-
 G.I. Gurdjieffin ideoita on sovellettu käytäntöön Helsingissä ja muissa 
-kaupungeissa vuodesta 2001. Ryhmiä on perustettu Helsinkiin, Turkuun, 
+kaupungeissa vuodesta 2002. Ryhmiä on perustettu Helsinkiin, Turkuun, 
 Jyväskylään, Tampereelle, Joensuuhun sekä Kouvolaan ja useimmat niistä ovat 
 edelleen aktiivisia. Ryhmien perustaminen muihinkin kaupunkeihin on mahdollista.
 
 **Suomen Gurdjieff-Seura ry:n ryhmät ovat Suomessa ainoita, jotka tunnustetaan 
 osaksi Gurdjieffin opetuksen päälinjaa.** Ne toimivat yhteistyössä Euroopan 
 (Lontoo ja Pariisi), Pohjois-Amerikan (New York, San Francisco ja Washington) 
-sekä Latinalaisen Amerikan keskeisten ryhmien kanssa. Suomen ryhmät perusti 
-amerikkalainen, jonka opettajan Gurdjieff lähetti perustamaan Washingtonin ryhmän.
+sekä Latinalaisen Amerikan keskeisten ryhmien kanssa. Helsingin ensimmäisen ryhmän perusti tammikuussa 2002 Bob Reinstein, jonka opettajan Hugh Ripmanin oli Gurdjieff lähettänyt 
+Washingtoniin perustamaan ryhmää vuonna 1949. Ripman välitti Gurdjieffin vaikutuksen edelleen Reinsteinille vuonna 1979. Kaikkien Suomen ryhmien työ perustuu Gurdjieffin ja Ripmanin 
+opetukseen.
 
 Jos olet kiinnostunut käytännöllisistä työvälineistä sinulla on mahdollisuus 
-liittyä johonkin nykyisistä ryhmistä tai olla mukana muodostamassa uutta ryhmää 
-paikkakunnalle, jossa sellaista ei vielä ole.
+liittyä johonkin nykyisistä ryhmistä, tai olla mukana muodostamassa uutta ryhmää 
+paikkakunnalle jossa sellaista ei vielä ole.
 
 ---
 
