@@ -6,6 +6,7 @@ title: Suomen Gurdjieff -yhdistys SGS ry
 navi: Koti
 ---
 
+
 Koronavirus rajoittaa parhaillaan ulkoista elämäämme. Toisaalta viime vuosina elämä on 
 tarjonnut meille loputtomasti mahdollisuuksia erilaisiin ulkoisiin aktiviteetteihin sekä 
 loputtomasti uusia teknologioita informaation etsimiseen ja jakamiseen.
