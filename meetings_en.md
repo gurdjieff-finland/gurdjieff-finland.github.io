@@ -13,7 +13,7 @@ can share their questions with each other.
 
 ## Upcoming Meetings
 
-* Public exchange 2023, June: *online*
+* Public exchange 2023, June 14: *online*
 * Public exchange 2023, September: Open inquiry (Helsinki)
 
 ## Recent Meetings
