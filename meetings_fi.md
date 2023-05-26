@@ -13,7 +13,7 @@ tason, jolle suurin osa nykyelämästä jää - ja etsiä todellista itseä ja e
 
 ## Tulossa
 
-* Julkinen keskustelutilaisuus 2023, kesäkuu: *verkkotapaaminen*
+* Julkinen keskustelutilaisuus 2023, 14.6.: *verkkotapaaminen*
 * Julkinen keskustelutilaisuus 2023, syyskuu: Avoin yleisötilaisuus (Helsinki)
 
 ## Menneet tilaisuudet
