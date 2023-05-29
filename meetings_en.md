@@ -14,7 +14,7 @@ can share their questions with each other.
 ## Upcoming Meetings
 
 <!----><a name="2023-meeting"></a>
-### Public exchange 2023, June 14: *online*
+### Public exchange June 14, 2023: *online*
 
 What is missing?
 
@@ -22,7 +22,7 @@ What is missing?
 
 Join the open online meeting on Wednesday June 14 at 18:00: *meeting link will be provided closer to the date*
 
-### Public exchange 2023, September: Open inquiry (Helsinki)
+### Public exchange September, 2023: Open inquiry (Helsinki)
 
 TBA
 
