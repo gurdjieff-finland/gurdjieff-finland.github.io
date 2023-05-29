@@ -13,8 +13,16 @@ tason, jolle suurin osa nykyelämästä jää - ja etsiä todellista itseä ja e
 
 ## Tulossa
 
-* Julkinen keskustelutilaisuus 2023, 14. kesäkuuta: *verkkotapaaminen*
-* Julkinen keskustelutilaisuus 2023, syyskuu: Avoin yleisötilaisuus (Helsinki)
+<!----><a name="2023-tapaaminen"></a>
+### Julkinen keskustelutilaisuus 2023, 14. kesäkuuta: *verkkotapaaminen*
+
+Mitä meiltä puuttuu?
+
+...jotakin muuta kuin lisää samanlaisia asioita mitä elämässämme jo on? Kuka minä todella olen, kaikkien arkisten naamioiden takana? Mitä mahdollisuuksia minulla on tavallisen elämän lisäksi – ja miksi ne ovat vain mahdollisuuksia? Millaisia työkaluja näiden mahdollisuuksien tutkimiseen voisi olla? Aitoon kysymykseen voi löytyä vastaus, joka täydentään kysymystä ja auttaa luomaan tietä yhä syvemmälle.
+
+Liity verkkokeskusteluun keskiviikkona 14. kesäkuuta klo 18.00: *linkki tulossa myöhemmin*
+
+### Julkinen keskustelutilaisuus 2023, syyskuu: Avoin yleisötilaisuus (Helsinki)
 
 ## Menneet tilaisuudet
 
