@@ -14,7 +14,7 @@ tason, jolle suurin osa nykyelämästä jää - ja etsiä todellista itseä ja e
 ## Tulossa
 
 <!----><a name="2023-tapaaminen"></a>
-### Julkinen keskustelutilaisuus 2023, 14. kesäkuuta: *verkkotapaaminen*
+### Julkinen keskustelutilaisuus 14. kesäkuuta 2023: *verkkotapaaminen*
 
 Mitä meiltä puuttuu?
 
@@ -22,7 +22,7 @@ Mitä meiltä puuttuu?
 
 Liity verkkokeskusteluun keskiviikkona 14. kesäkuuta klo 18.00: *linkki tulossa myöhemmin*
 
-### Julkinen keskustelutilaisuus 2023, syyskuu: Avoin yleisötilaisuus (Helsinki)
+### Julkinen keskustelutilaisuus syyskuussa 2023: Avoin yleisötilaisuus (Helsinki)
 
 ## Menneet tilaisuudet
 
