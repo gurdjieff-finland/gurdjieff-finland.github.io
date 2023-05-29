@@ -13,10 +13,20 @@ can share their questions with each other.
 
 ## Upcoming Meetings
 
-* Public exchange 2023, June 14: *online*
-* Public exchange 2023, September: Open inquiry (Helsinki)
+<!----><a name="2023-meeting"></a>
+### Public exchange 2023, June 14: *online*
 
-## Recent Meetings
+What is missing?
+
+...other than more of the small kinds of things that already fill our lives? Who is my real self, behind the mask of all the roles I play in life? What possibilities may exist beyond the ordinary things of life, and why are they only possibilities? What tools might exist for exploring these possibilities? Real questions such as these may find a response that resonates with the question and facilitates a further exploration and leads to a deeper question.
+
+Join the open online meeting on Wednesday June 14 at 18:00: *meeting link will be provided closer to the date*
+
+### Public exchange 2023, September: Open inquiry (Helsinki)
+
+TBA
+
+## Past Meetings
 
 * Public exchange 2019: Open inquiry (Tampere, Helsinki, Turku)
 * Public exchange 2018: “What Is Missing?” (Helsinki) 
