@@ -7,7 +7,7 @@ navi: Koti
 ---
 
 
-Koronavirus rajoittaa parhaillaan ulkoista elämäämme. Toisaalta viime vuosina elämä on 
+Koronavirus rajoittaa edelleen ulkoista elämäämme. Toisaalta viime vuosina elämä on 
 tarjonnut meille loputtomasti mahdollisuuksia erilaisiin ulkoisiin aktiviteetteihin sekä 
 loputtomasti uusia teknologioita informaation etsimiseen ja jakamiseen.
 
@@ -33,6 +33,14 @@ opetukseen.
 Jos olet kiinnostunut käytännöllisistä työvälineistä sinulla on mahdollisuus 
 liittyä johonkin nykyisistä ryhmistä, tai olla mukana muodostamassa uutta ryhmää 
 paikkakunnalle jossa sellaista ei vielä ole.
+
+## Seuraava julkinen keskustelutilaisuus: 14. kesäkuuta 2023 (*verkkotapaaminen*)
+
+Mitä meiltä puuttuu?
+
+...jotakin muuta kuin lisää samanlaisia asioita mitä elämässämme jo on? Kuka minä todella olen, kaikkien arkisten naamioiden takana? Mitä mahdollisuuksia minulla on tavallisen elämän lisäksi -- ja miksi ne ovat vain mahdollisuuksia? Millaisia työkaluja näiden mahdollisuuksien tutkimiseen voisi olla? Aitoon kysymykseen voi löytyä vastaus, joka täydentään kysymystä ja auttaa luomaan tietä yhä syvemmälle.
+
+Tervetuloa verkkokeskusteluun keskiviikkona 14. kesäkuuta klo 18.00. **Saat liittymislinkin ja lisätietoa lähettämällä sähköpostia osoitteeseen gurdjieffsociety.fi@gmail.com**
 
 ---
 
