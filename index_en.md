@@ -6,7 +6,7 @@ title: Gurdjieff Society of Finland SGS ry
 navi: Home
 ---
 
-Today we are rather restricted in our outer lives because of the dangers of the 
+Today we are still restricted in our outer lives because of the dangers of the 
 Corona Virus. But in recent times we have had endless opportunities for outer 
 activities and endless new technologies for finding and sharing information.
 
@@ -27,10 +27,17 @@ main lineage from Gurdjieff**, with links to the key groups in Europe (London an
 Paris), North America (New York, San Francisco and Washington) and Latin
 America. The first group was established in Helsinki in January 2002 by Bob Reinstein, whose teacher Hugh Ripman was sent by Gurdjieff to establish a group in Washington in 1949. Ripman passed the Gurdjieff influence to Reinstein in 1979. Related groups in Finland are all based on the Gurdjieff-Ripman approach.
 
-
 If you are interested in such a practical approach, you may be able to join
 existing groups or be involved in forming a new group in a community where you
 do not already have one.
+
+## Next public exchange on June 14, 2023: (*online*)
+
+What is missing?
+
+...other than more of the small kinds of things that already fill our lives? Who is my real self, behind the mask of all the roles I play in life? What possibilities may exist beyond the ordinary things of life, and why are they only possibilities? What tools might exist for exploring these possibilities? Real questions such as these may find a response that resonates with the question and facilitates a further exploration and leads to a deeper question.
+
+Welcome to the open online meeting on Wednesday June 14 at 18:00. **You can get the meeting link and more info by sending an email to the address gurdjieffsociety.fi@gmail.com**
 
 ---
 
