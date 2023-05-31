@@ -20,7 +20,7 @@ What is missing?
 
 ...other than more of the small kinds of things that already fill our lives? Who is my real self, behind the mask of all the roles I play in life? What possibilities may exist beyond the ordinary things of life, and why are they only possibilities? What tools might exist for exploring these possibilities? Real questions such as these may find a response that resonates with the question and facilitates a further exploration and leads to a deeper question.
 
-Join the open online meeting on Wednesday June 14 at 18:00: *meeting link will be provided closer to the date*
+Welcome to the open online meeting on Wednesday June 14 at 18:00. **You can get the meeting link and more info by sending an email to the address gurdjieffsociety.fi@gmail.com**
 
 ### Public exchange September, 2023: Open inquiry (Helsinki)
 
