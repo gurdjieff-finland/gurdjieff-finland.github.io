@@ -20,7 +20,7 @@ Mitä meiltä puuttuu?
 
 ...jotakin muuta kuin lisää samanlaisia asioita mitä elämässämme jo on? Kuka minä todella olen, kaikkien arkisten naamioiden takana? Mitä mahdollisuuksia minulla on tavallisen elämän lisäksi – ja miksi ne ovat vain mahdollisuuksia? Millaisia työkaluja näiden mahdollisuuksien tutkimiseen voisi olla? Aitoon kysymykseen voi löytyä vastaus, joka täydentään kysymystä ja auttaa luomaan tietä yhä syvemmälle.
 
-Liity verkkokeskusteluun keskiviikkona 14. kesäkuuta klo 18.00: *linkki tulossa myöhemmin*
+Tervetuloa verkkokeskusteluun keskiviikkona 14. kesäkuuta klo 18.00. **Saat liittymislinkin ja lisätietoa lähettämällä sähköpostia osoitteeseen gurdjieffsociety.fi@gmail.com**
 
 ### Julkinen keskustelutilaisuus syyskuussa 2023: Avoin yleisötilaisuus (Helsinki)
 
