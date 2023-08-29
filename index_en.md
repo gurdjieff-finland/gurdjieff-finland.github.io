@@ -31,7 +31,7 @@ If you are interested in such a practical approach, you may be able to join
 existing groups or be involved in forming a new group in a community where you
 do not already have one.
 
-## Next public exchange on October, 2023: Helsinki
+## Next public exchange in October, 2023: Helsinki
 
 What is missing?
 
