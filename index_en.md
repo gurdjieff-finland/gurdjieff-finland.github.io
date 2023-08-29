@@ -31,13 +31,13 @@ If you are interested in such a practical approach, you may be able to join
 existing groups or be involved in forming a new group in a community where you
 do not already have one.
 
-## Next public exchange on June 14, 2023: (*online*)
+## Next public exchange on October, 2023: Helsinki
 
 What is missing?
 
 ...other than more of the small kinds of things that already fill our lives? Who is my real self, behind the mask of all the roles I play in life? What possibilities may exist beyond the ordinary things of life, and why are they only possibilities? What tools might exist for exploring these possibilities? Real questions such as these may find a response that resonates with the question and facilitates a further exploration and leads to a deeper question.
 
-Welcome to the open online meeting on Wednesday June 14 at 18:00. **You can get the meeting link and more info by sending an email to the address gurdjieffsociety.fi@gmail.com**
+Welcome to the discussion at the Rikhardinkatu library. The date and hour will be announced soon!
 
 ---
 
