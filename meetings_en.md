@@ -14,20 +14,17 @@ can share their questions with each other.
 ## Upcoming Meetings
 
 <!----><a name="2023-meeting"></a>
-### Public exchange June 14, 2023: *online*
+### Public exchange October, 2023: Open inquiry (Helsinki)
 
 What is missing?
 
 ...other than more of the small kinds of things that already fill our lives? Who is my real self, behind the mask of all the roles I play in life? What possibilities may exist beyond the ordinary things of life, and why are they only possibilities? What tools might exist for exploring these possibilities? Real questions such as these may find a response that resonates with the question and facilitates a further exploration and leads to a deeper question.
 
-Welcome to the open online meeting on Wednesday June 14 at 18:00. **You can get the meeting link and more info by sending an email to the address gurdjieffsociety.fi@gmail.com**
-
-### Public exchange September, 2023: Open inquiry (Helsinki)
-
-TBA
+Welcome to the discussion at the Rikhardinkatu library. The date and hour will be announced soon!
 
 ## Past Meetings
 
+* Public exchange 2023, June: "What Is Missing?" (online)
 * Public exchange 2019: Open inquiry (Tampere, Helsinki, Turku)
 * Public exchange 2018: “What Is Missing?” (Helsinki) 
 * Public exchange 2017: “Questions” (Helsinki, Turku) 
