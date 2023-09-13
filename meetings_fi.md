@@ -14,13 +14,17 @@ tason, jolle suurin osa nykyelämästä jää - ja etsiä todellista itseä ja e
 ## Tulossa
 
 <!----><a name="2023-tapaaminen"></a>
-### Julkinen keskustelutilaisuus lokakuussa 2023: Avoin yleisötilaisuus (Helsinki)
+### Julkinen keskustelutilaisuus 11. lokakuuta 2023, Rikhardinkadun kirjasto, Helsinki
 
-Mitä meiltä puuttuu?
+![Mitä meiltä puuttuu?](/docs/assets/What_Is_Missing_Event.png)
 
-...jotakin muuta kuin lisää samanlaisia asioita mitä elämässämme jo on? Kuka minä todella olen, kaikkien arkisten naamioiden takana? Mitä mahdollisuuksia minulla on tavallisen elämän lisäksi – ja miksi ne ovat vain mahdollisuuksia? Millaisia työkaluja näiden mahdollisuuksien tutkimiseen voisi olla? Aitoon kysymykseen voi löytyä vastaus, joka täydentään kysymystä ja auttaa luomaan tietä yhä syvemmälle.
+Tervetuloa julkiseen keskustelutilaisuuteen elämän syvemmistä mahdollisuuksista eli siitä, mitä elämästämme puuttuu! Luvassa on Bob Reinsteinin alustus mystikko G.I. Gurdjieffin opetusten pohjalta, jonka jälkeen keskustellaan aiheesta. Alustus ja keskustelu ovat pääosin englanniksi.
 
-Tervetuloa keskustelemaan Rikhardinkadun kirjastolle. Päivämäärä ja ajankohta tarkentuvat piakkoin!
+Bob on pitänyt keskustelutilaisuuksia Rikhardinkadun kirjastossa yli vuosikymmenen ja niiden perusteella julkaistiin vuonna 2013 kirja Notes on Becoming – Huomioita todelliseksi tulemisesta.
+
+Bob Reinstein on toiminut mm. USA:n ulko­ministeriössä varaministerinä vastuualueinaan ympäristö, terveys ja luonnonvarat sekä USA:n pääneuvottelijana YK:n ilmastonmuutosta koskevassa puitesopimuksessa. Hänellä on yli 40 vuoden kokemus tieteessä, taloudessa, energiakysymyksissä, kauppapolitiikassa, diplomatiassa sekä Gurdjieffin opetusten soveltamisessa käytännön elämään. Bob on myös julkaissut runoja, ja hänen maalauksensa ovat olleet esillä taidenäyttelyissä Yhdysvalloissa ja Kanadassa (yksi niistä kuvassa vasemmalla).
+
+Tervetuloa keskustelemaan Rikhardinkadun kirjastolle 11. lokakuuta klo 18. Tilaisuus kestää noin tunnin ja se pidetään kokoustila Turessa, kirjaston 1. kerroksessa.
 
 ## Menneet tilaisuudet
 
