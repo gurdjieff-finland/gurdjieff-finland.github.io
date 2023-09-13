@@ -31,13 +31,17 @@ If you are interested in such a practical approach, you may be able to join
 existing groups or be involved in forming a new group in a community where you
 do not already have one.
 
-## Next public exchange in October, 2023: Helsinki
+## Next public exchange on October 11, 2023 in Helsinki
 
-What is missing?
+![What is missing?](/docs/assets/What_Is_Missing_Event.png)
 
-...other than more of the small kinds of things that already fill our lives? Who is my real self, behind the mask of all the roles I play in life? What possibilities may exist beyond the ordinary things of life, and why are they only possibilities? What tools might exist for exploring these possibilities? Real questions such as these may find a response that resonates with the question and facilitates a further exploration and leads to a deeper question.
+Welcome to an open discussion about the deeper possibilities of life, about what is missing! Bob Reinstein gives a brief introduction to the teachings of the mystic G.I. Gurdjieff and facilitates the discussion. The intro and discussion are mainly in English.
 
-Welcome to the discussion at the Rikhardinkatu library. The date and hour will be announced soon!
+Bob has held discussions in Rikhardinkatu Library for over a decade and a book based on them was published in 2013 entitled Notes on Becoming.
+
+Bob Reinstein has worked in the US Foreign Office as a vice minister with environmental, health and natural resources as his responsibility and been the main US negotiator in a UN general agreement on climate change. He has over 40 years of experience in science, economy, energy policies, trade politics, diplomacy and in applying Gurdjieff’s teachings in life. Bob is also a published poet and his paintings have been exhibited in the US and Canada (an example of which is on the left in the picture above).
+
+Welcome to the discussion at the **Rikhardinkatu library on October 11 at 18:00**. The event lasts for an hour and will be held in the meeting room Ture, on the 1st floor of the library.
 
 ---
 
