@@ -44,7 +44,7 @@ Bob on pitänyt keskustelutilaisuuksia Rikhardinkadun kirjastossa yli vuosikymme
 
 Bob Reinstein on toiminut mm. USA:n ulko­ministeriössä varaministerinä vastuualueinaan ympäristö, terveys ja luonnonvarat sekä USA:n pääneuvottelijana YK:n ilmastonmuutosta koskevassa puitesopimuksessa. Hänellä on yli 40 vuoden kokemus tieteessä, taloudessa, energiakysymyksissä, kauppapolitiikassa, diplomatiassa sekä Gurdjieffin opetusten soveltamisessa käytännön elämään. Bob on myös julkaissut runoja, ja hänen maalauksensa ovat olleet esillä taidenäyttelyissä Yhdysvalloissa ja Kanadassa (yksi niistä kuvassa vasemmalla).
 
-Tervetuloa keskustelemaan Rikhardinkadun kirjastolle 11. lokakuuta klo 18. Tilaisuus pidetään kokoustila Tuuressa, 1. kerros.
+Tervetuloa keskustelemaan Rikhardinkadun kirjastolle 11. lokakuuta klo 18. Tilaisuus kestää noin tunnin ja se pidetään kokoustila Turessa, kirjaston 1. kerroksessa.
 
 ---
 
