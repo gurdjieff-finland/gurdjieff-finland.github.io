@@ -45,4 +45,4 @@ Welcome to the discussion at the **Rikhardinkatu library on October 11 at 18:00*
 
 ---
 
-Please contact:  gurdjieffsociety.fi@gmail.com
+Please contact:  <gurdjieffsociety.fi@gmail.com>
