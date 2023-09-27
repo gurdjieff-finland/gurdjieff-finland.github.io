@@ -41,7 +41,7 @@ Bob has held discussions in Rikhardinkatu Library for over a decade and a book b
 
 Bob Reinstein has worked in the US Foreign Office as a vice minister with environmental, health and natural resources as his responsibility and been the main US negotiator in a UN general agreement on climate change. He has over 40 years of experience in science, economy, energy policies, trade politics, diplomacy and in applying Gurdjieff’s teachings in life. Bob is also a published poet and his paintings have been exhibited in the US and Canada (an example of which is on the left in the picture above).
 
-Welcome to the discussion at the **Rikhardinkatu library on October 11 at 18:00**. The event lasts for an hour and will be held in the meeting room Ture, on the 1st floor of the library.
+Welcome to the discussion at the **Rikhardinkatu library on October 11 at 18:00**. The event lasts for an hour and will be held in the meeting room Ture, on the 1st floor of the library. You can also join the discussion remotely. Get the meeting link and more info by sending an email to <gurdjieffsociety.fi@gmail.com>.
 
 ---
 
