@@ -26,6 +26,8 @@ Bob Reinstein has worked in the US Foreign Office as a vice minister with enviro
 
 Welcome to the discussion at the **Rikhardinkatu library on October 11 at 18:00**. The event lasts for an hour and will be held in the meeting room Ture, on the 1st floor of the library.
 
+You can also join the discussion remotely. Get the meeting link and more info by sending an email to <gurdjieffsociety.fi@gmail.com>.
+
 ## Past Meetings
 
 * Public exchange 2023, June: "What Is Missing?" (online)
