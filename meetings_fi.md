@@ -26,6 +26,8 @@ Bob Reinstein on toiminut mm. USA:n ulko­ministeriössä varaministerinä vastu
 
 Tervetuloa keskustelemaan **Rikhardinkadun kirjastolle 11. lokakuuta klo 18**. Tilaisuus kestää noin tunnin ja se pidetään kokoustila Turessa, kirjaston 1. kerroksessa.
 
+Keskusteluun voi osallistua myös etänä. Saat liittymislinkin ja lisätietoa lähettämällä sähköpostia osoitteeseen <gurdjieffsociety.fi@gmail.com>.
+
 ## Menneet tilaisuudet
 
 * Julkinen keskustelutilaisuus 2023, kesäkuu: "Mitä meiltä puuttuu?" (verkkotapaaminen)
