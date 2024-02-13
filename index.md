@@ -34,17 +34,13 @@ Jos olet kiinnostunut käytännöllisistä työvälineistä sinulla on mahdollis
 liittyä johonkin nykyisistä ryhmistä, tai olla mukana muodostamassa uutta ryhmää 
 paikkakunnalle jossa sellaista ei vielä ole.
 
-## Seuraava julkinen keskustelutilaisuus: 11. lokakuuta 2023, Helsinki
+## Uusi ryhmä
 
-![Mitä meiltä puuttuu?](/docs/assets/What_Is_Missing_Event.png)
+Uusin ryhmämme ottaa vastaan jäseniä. Ryhmä tapaa viikottain tunnin ajan Zoomin välityksellä, ja satunnaisesti myös kasvotusten olosuhteiden niin salliessa.
 
-Tervetuloa julkiseen keskustelutilaisuuteen elämän syvemmistä mahdollisuuksista eli siitä, mitä elämästämme puuttuu! Luvassa on Bob Reinsteinin alustus mystikko G.I. Gurdjieffin opetusten pohjalta, jonka jälkeen keskustellaan aiheesta. Alustus ja keskustelu ovat pääosin englanniksi.
+Seuran tukemissa ryhmissä pyritään sisäisen kehityksen näkyvään vaikutukseen itse kunkin elämässä. Tutkimme Gurdjieffin ja hänen oppilaidensa ideoita, mutta painottaen niiden hyödyllisyyttä käytännössä. Ryhmä tarjoaa mahdollisuuden oman ymmärryksen ja kokemusten arvioimiseen muiden sisäistä työtä tekevien kanssa.
 
-Bob on pitänyt keskustelutilaisuuksia Rikhardinkadun kirjastossa yli vuosikymmenen ja niiden perusteella julkaistiin vuonna 2013 kirja Notes on Becoming – Huomioita todelliseksi tulemisesta.
-
-Bob Reinstein on toiminut mm. USA:n ulko­ministeriössä varaministerinä vastuualueinaan ympäristö, terveys ja luonnonvarat sekä USA:n pääneuvottelijana YK:n ilmastonmuutosta koskevassa puitesopimuksessa. Hänellä on yli 40 vuoden kokemus tieteessä, taloudessa, energiakysymyksissä, kauppapolitiikassa, diplomatiassa sekä Gurdjieffin opetusten soveltamisessa käytännön elämään. Bob on myös julkaissut runoja, ja hänen maalauksensa ovat olleet esillä taidenäyttelyissä Yhdysvalloissa ja Kanadassa (yksi niistä kuvassa vasemmalla).
-
-Tervetuloa keskustelemaan **Rikhardinkadun kirjastolle 11. lokakuuta klo 18**. Tilaisuus kestää noin tunnin ja se pidetään kokoustila Turessa, kirjaston 1. kerroksessa. Keskusteluun voi osallistua myös etänä. Saat liittymislinkin ja lisätietoa lähettämällä sähköpostia osoitteeseen <gurdjieffsociety.fi@gmail.com>.
+Jos kiinnostuit, niin ota yhteyttä: <gurdjieffsociety.fi@gmail.com>
 
 ---
 
